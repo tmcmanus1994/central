@@ -37,27 +37,39 @@ While voice stays consistent, tone adapts:
 ### Sunday Recap / Sermon Content
 - **Tone:** Reflective, inspiring, conversational
 - **Energy:** Calm confidence
-- "Steven reminded us Sunday that love isn't a feeling — it's a decision we make every single day."
+- "Steven reminded us Sunday that the truest truth about who you are isn't your faults or your achievements — it's God's fierce, unending love."
 
 ### Event Promotion
-- **Tone:** Excited, inviting, casual
+- **Tone:** Excited, inviting, casual — a little funny
 - **Energy:** Warm enthusiasm
-- "This Saturday. Pancakes. Fellowship. No agenda — just good people and good food. You in?"
+- "This Thursday. Dudes. Lunch. The gym. It's called Taste Buds. Steven promises it won't be too preachy. (His words.)"
 
 ### Wednesday Reminder
 - **Tone:** Encouraging, gentle nudge
 - **Energy:** Supportive
-- "Mid-week check-in: How's your week going? We're gathering tonight at 6:30 if you need a reset."
+- "Mid-week check-in: How's your week going? We're gathering tonight at 6:30 if you need a reset. Steven's wrapping up Luke and rolling into something new."
 
 ### Devotional / Encouragement
 - **Tone:** Gentle, grounding, personal
 - **Energy:** Quiet strength
 - "You don't have to earn God's love. You already have it. Sit with that today."
+- "God doesn't run from messy. He covers the chaos with his presence."
 
 ### Community Spotlight
 - **Tone:** Celebratory, grateful
 - **Energy:** Joyful
-- "Shoutout to our volunteers who showed up early to make Sunday happen. You are seen and appreciated."
+- "Dennis and Anita Mitchell spent years alphabetically filing hymn packets for our praise team. You had no idea. That's Central — people serving quietly, faithfully, behind the scenes."
+
+### Baptism / Milestone Celebration
+- **Tone:** Joyful, personal, celebratory
+- **Energy:** Proud family
+- "Aaron was baptized this Sunday. He told us he'd been thinking about it for a long time — and that seeing Nick's baptism a few weeks ago is what moved him to take the step. That's how it works. One life changes another."
+
+### Closing Blessing (Steven's Style)
+Steven's closing blessings are poetic, specific, and beautiful. They make great standalone posts:
+- "May the Lord God be with you in extraordinary and ordinary ways so that all your moments may be lived in Christ."
+- "May you see Jesus at work in every moment that matters — which is to say, every moment."
+- "May you find in every day thousands of reflections of his great love for you, which is the truest truth about who you are and about who your neighbors are, and about who your enemies are too."
 
 ---
 
@@ -77,14 +89,24 @@ While voice stays consistent, tone adapts:
 | Backsliding | Struggling, going through it |
 | Convicted | Challenged, moved, inspired |
 
-### Phrases That Feel Like Us
+### Phrases That Feel Like Us (From Actual Sermons)
 - "Follow Jesus together"
 - "There's room for you here"
 - "Come as you are"
 - "Growing God's Kingdom one person at a time"
 - "Downtown Little Rock. Doors wide open."
-- "Real people. Real faith. Real community."
+- "This quirky little church downtown" — Steven
 - "We don't have it all figured out — but we're figuring it out together."
+- "Doing things the human way"
+- "The truest truth about who you are is that you're a beloved creature of God."
+- "God doesn't run from messy. He covers the chaos with his presence."
+- "Come all you faithful, joyful, and triumphant — but also come you who are weak and tired and run down and weary."
+- "He is our peace."
+- "You were dead. But God."
+- "The love of Christ is with you."
+- "We're gonna slip and fall and there's gonna be needs to catch each other and hold each other. But that's the beauty of the body of Christ."
+- "Always go to the funeral" — showing up matters
+- "Conflict doesn't cause damage. Distance does."
 
 ### Phrases That Don't Feel Like Us
 - "Are you saved?"
@@ -94,6 +116,7 @@ While voice stays consistent, tone adapts:
 - "On fire for God"
 - "Prayer warriors"
 - Anything that sounds like a bumper sticker
+- Anything that sounds like a megachurch marketing team
 
 ---
 
